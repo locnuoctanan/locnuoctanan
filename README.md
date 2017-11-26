@@ -1,4 +1,6 @@
-<div style="text-align: left;"><span style="font-size: larger;"><span style="font-family: Tahoma;">Vậy </span></span><a href="http://locnuoctanan.vn/tu-van/news/345/may-loc-nuoc-nao-tot-nhat-hien-nay.html"><span style="color: rgb(0, 134, 56);"><strong><span style="font-size: larger;"><span style="font-family: Tahoma;">m&aacute;y lọc nước n&agrave;o tốt nhất hiện nay?</span></span></strong></span></a><span style="font-size: larger;"><span style="font-family: Tahoma;"> Ch&uacute;ng ta c&ugrave;ng t&igrave;m hiểu nh&eacute;. <br />
+<div style="text-align: left;"><span style="font-size: medium;"><strong><span style="font-family: Tahoma;">M&aacute;y lọc nước n&agrave;o tốt nhất hiện nay</span></strong></span><span style="font-size: larger;"><span style="font-family: Tahoma;"><br />
+<br />
+Vậy </span></span><a href="http://locnuoctanan.vn/tu-van/news/345/may-loc-nuoc-nao-tot-nhat-hien-nay.html"><span style="color: rgb(0, 134, 56);"><strong><span style="font-size: larger;"><span style="font-family: Tahoma;">m&aacute;y lọc nước n&agrave;o tốt nhất hiện nay?</span></span></strong></span></a><span style="font-size: larger;"><span style="font-family: Tahoma;"> Ch&uacute;ng ta c&ugrave;ng t&igrave;m hiểu nh&eacute;. <br />
 </span></span></div>
 <div style="text-align: center;"><span style="font-size: larger;"><span style="font-family: Tahoma;"><span style="color: rgb(0, 51, 102);"><strong>
 <h2>NHỮNG ƯU ĐIỂM V&Agrave; NHƯỢC ĐIỂM CỦA C&Ocirc;NG NGHỆ LỌC RO V&Agrave; C&Ocirc;NG NGHỆ LỌC NANO</h2>
